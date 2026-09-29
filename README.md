@@ -1,0 +1,2 @@
+# premium-pierced-001-pierced-tinwork-punching-patte
+Tired of losing your favorite punching patterns on crumpled papers and forgetting which tin gauge worked best for that intricate floral design?  Your physical pattern stash gets messy fast, but this Pierced Tinwork Punching Pattern Design Guide turns your Notion workspace into a structured, searchable archive. It solves the chaos of scattered notes
